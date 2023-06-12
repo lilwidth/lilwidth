@@ -5,7 +5,7 @@
 - 📫 How to reach me lol
 - no tengo nada importante o interesante para contarles mucho menos cuento con algun tipo de experiencia soy nuevo en este mundo las pocas que hice fueron en pseudocodigo pseint y phyton.
 - siempre les pedi un pc a mis viejos y nunca me la dieron jajaja.
-- si quieres puedes comunicarte conmigo por ig respondo al toque.
+- si quieres mas informacion o una pregunta directa puedes comunicarte conmigo por ig
 
 <!---
 lilwidth/lilwidth is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
